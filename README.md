@@ -10,8 +10,7 @@
 
 - 📫 If you'd like to get in touch, here's my email: singhshikha72340@gmail.com
 
-- 📄 Know about my experiences [https://kranshu351.hackerresume.io/d986a516-7303-4957-b387-8d8fe6f30f0d](https://kranshu351.hackerresume.io/d986a516-7303-4957-b387-8d8fe6f30f0d)
-
+- 📄 Know about my experiences [https://kranshu351.hackerresume.io/d986a516-7303-4957-b387-8d8fe6f30f0d](https://drive.google.com/file/d/1J62CYrSVASMOpOTfiT4KsJGcYgBmYJd1/view)
 - ⚡ Fun fact I think I can code😁!
 
 <h3 align="left">Connect with me:</h3>
